@@ -1,4 +1,7 @@
-## Hi there 👋
+## Hola Soy Fran Rm 👋
+## franramosmartin en istagram
+## francisckin en Tuiter
+## francisckin en BlueSky
 
 <!--
 **francisckin/francisckin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

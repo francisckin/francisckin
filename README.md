@@ -1,5 +1,5 @@
 ## Hola Soy Fran Rm 👋
-## franramosmartin en istagram
+## franramosmartin en instagram
 ## francisckin en Tuiter
 ## francisckin en BlueSky
 
